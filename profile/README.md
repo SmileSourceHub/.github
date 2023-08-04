@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+Coming soon to a community with incredible projects!
+Have fun learning together, the game will be unveiled soon :)
+
 <!--
 
 **Here are some ideas to get you started:**
